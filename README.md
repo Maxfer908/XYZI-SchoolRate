@@ -1,0 +1,2 @@
+# XYZI-SchoolRate
+kek
